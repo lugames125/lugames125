@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...programar,jogar e aprender
 - 🌱 I’m currently learning ...html e css
 - 💞️ I’m looking to collaborate on ...não sei
-- 📫 How to reach me ...intagram:luisa.hena
+- 📫 How to reach me ...instagram: luisa.hena
 - 😄 Pronouns: ...ela/dela
 - ⚡ Fun fact: ...
 
